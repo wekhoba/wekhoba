@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @wekhoba
 - 👀 I’m interested in ..coding.
-- 🌱 I’m currently learning ..BBIT.
+- 🌱 Graduated with a degree in..BBIT.
 - 💞️ I’m looking to collaborate on ... designing websites
 - 📫 How to reach me ... nasiche32@gmail.com
 
